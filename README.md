@@ -22,4 +22,4 @@ Tell your problems to HOLLYbot. Ask it great questions. Talk about every crazy t
   And now?
 </h1>
 
-Grab some popcorn and enjoy the responses.
+Grab some 🍿 and enjoy the responses.
